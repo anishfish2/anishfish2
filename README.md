@@ -3,6 +3,7 @@ Yo, I'm Anish!
 Please reach out to me if you have any questions or project ideas! I'd love to hear from you.
 
 
-Senior @ Texas A&M
-Prev. Google, MIT Lincoln, HEB
+Gradudate @ Texas A&M
+Prev. Cherry, Google, MIT Lincoln, HEB
 
+Working on some cool stufff i think :)
